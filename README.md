@@ -1,0 +1,2 @@
+# Cryptogeddon
+The financial warfare
